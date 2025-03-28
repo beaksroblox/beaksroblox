@@ -1,10 +1,3 @@
----
-title: "Beaks: A New Adventure in Bird Catching on Roblox"
-date: "2024-03-20"
-author: "Beaks Team"
-description: "Discover Beaks, the exciting new Roblox game that puts a unique spin on bird catching with tranquilizers and exploration."
----
-
 # Beaks: A New Adventure in Bird Catching on Roblox
 
 Are you ready for a unique gaming experience that combines exploration, strategy, and bird collecting? Look no further than [Beaks](https://www.roblox.com/games/122678592501168/Beaks), the latest sensation on Roblox that's taking the gaming community by storm! Visit our [website](https://beaksroblox.com/) to learn more about this exciting adventure.
