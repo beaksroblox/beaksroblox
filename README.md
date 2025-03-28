@@ -6,7 +6,7 @@
 
 Beaks is a newly released Roblox game developed by Nekami, offering a fresh take on the bird-catching genre. Similar to Fisch, but with guns and tranquilizers instead of fishing rods, players explore different locations, tranquilize rare birds, and sell them for in-game currency. The game includes various rifles, night vision goggles, and unique environments like the Deadlands and Mountain Beaks. With Easter eggs, quests, and hidden locations, Beaks provides an exciting experience for collectors and adventurers.
 
-Are you ready for a unique gaming experience that combines exploration, strategy, and bird collecting? Look no further than [Beaks](https://www.roblox.com/games/122678592501168/Beaks), the latest sensation on Roblox that's taking the gaming community by storm! Visit our [website](https://beaksroblox.com/) to learn more about this exciting adventure.
+Are you ready for a unique gaming experience that combines exploration, strategy, and bird collecting? Look no further than [Beaks](https://www.roblox.com/games/122678592501168/Beaks), the latest sensation on Roblox that's taking the gaming community by storm! Visit our website [Beaks Roblox](https://beaksroblox.com/) to learn more about this exciting adventure.
 
 ## What Makes Beaks Special?
 
@@ -37,10 +37,10 @@ The Beaks community is growing rapidly! Connect with other players and stay upda
 
 ## Getting Started
 
-Ready to begin your adventure? Visit the [Beaks Roblox page](https://www.roblox.com/games/122678592501168/Beaks) and start your journey today! Whether you're a seasoned Roblox player or new to the platform, Beaks offers an accessible yet challenging experience that will keep you coming back for more. For more information, visit our [website](https://beaksroblox.com/).
+Ready to begin your adventure? Visit the [Beaks Roblox page](https://www.roblox.com/games/122678592501168/Beaks) and start your journey today! Whether you're a seasoned Roblox player or new to the platform, Beaks offers an accessible yet challenging experience that will keep you coming back for more. For more information, visit our website [Beaks Roblox](https://beaksroblox.com/)
 
 ## Stay Connected
 
-Don't miss out on any updates or community events! Follow our social media channels to stay informed about new features, special events, and community highlights. You can also visit our [website](https://beaksroblox.com/) for the latest news and updates.
+Don't miss out on any updates or community events! Follow our social media channels to stay informed about new features, special events, and community highlights. You can also visit our website [Beaks Roblox](https://beaksroblox.com/) for the latest news and updates.
 
 Join the Beaks community today and become part of this exciting new chapter in Roblox gaming! 
