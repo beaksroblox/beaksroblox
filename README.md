@@ -1,4 +1,10 @@
+
+
 # Beaks: A New Adventure in Bird Catching on Roblox
+
+## What is Beaks?
+
+Beaks is a newly released Roblox game developed by Nekami, offering a fresh take on the bird-catching genre. Similar to Fisch, but with guns and tranquilizers instead of fishing rods, players explore different locations, tranquilize rare birds, and sell them for in-game currency. The game includes various rifles, night vision goggles, and unique environments like the Deadlands and Mountain Beaks. With Easter eggs, quests, and hidden locations, Beaks provides an exciting experience for collectors and adventurers.
 
 Are you ready for a unique gaming experience that combines exploration, strategy, and bird collecting? Look no further than [Beaks](https://www.roblox.com/games/122678592501168/Beaks), the latest sensation on Roblox that's taking the gaming community by storm! Visit our [website](https://beaksroblox.com/) to learn more about this exciting adventure.
 
